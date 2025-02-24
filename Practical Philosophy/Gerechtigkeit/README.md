@@ -1,8 +1,3 @@
----
-title: Gerechtigkeit & Ungerechtigkeit
-
----
-
 # Gerechtigkeit & Ungerechtigkeit
 
 ### **Beispiele für Gerechtigkeit:**
