@@ -1,7 +1,7 @@
 # Gerechtigkeit & Ungerechtigkeit
 
 ### **Beispiele für Gerechtigkeit:**
-1. **Gleiche Bezahlung für gleiche Arbeit** – Zwei Personen mit der gleichen Qualifikation und Erfahrung erhalten für dieselbe Arbeit das gleiche Gehalt. ![Geld](/assets/Practical Philosophy/Gerechtigkeit/
+1. **Gleiche Bezahlung für gleiche Arbeit** – Zwei Personen mit der gleichen Qualifikation und Erfahrung erhalten für dieselbe Arbeit das gleiche Gehalt. ![Geld](/assets/Practical Philosophy/Gerechtigkeit/IMG_0054.webp)
 2. **Faire Gerichtsverfahren** – Ein Angeklagter erhält eine neutrale und faire Verhandlung mit einem unabhängigen Richter und einer angemessenen Verteidigung.
 3. **Bedarfsgerechte Unterstützung** – Menschen mit Behinderungen erhalten barrierefreie Zugänge und Hilfsmittel, damit sie die gleichen Chancen haben wie andere.
 4. **Chancengleichheit in der Bildung** – Jedes Kind hat Zugang zu hochwertiger Bildung, unabhängig vom Einkommen der Eltern.
