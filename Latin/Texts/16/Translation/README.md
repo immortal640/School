@@ -9,12 +9,6 @@ Domitius begrüßt sie._
 > [!WARNING]
 > Kann und wird möglicherweise _(gravierende)_ Fehler enthalten.
 
-> [!NOTE]
-> Hier eine Liste aller Phrasen, die ich nachschlagen musste:
-> - complures
-> - demum
-> - reducere
-
 Sulpicia: _"Das eine weiß ich: Die Gäste, die spät gekommen sind, erfreuen Flavius Lepidus nicht"_\
 Domitius: _"Er hat und erst zur zehnten Stunde gerufen."_\
 Sulpicia: _"Was erwartet uns?"_\
