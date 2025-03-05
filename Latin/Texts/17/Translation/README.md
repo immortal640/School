@@ -7,9 +7,6 @@ _Discordia, die Göttin des Streites, widersetzt sich Iuppiter und erscheint zu 
 > [!WARNING]
 >  Kann und wird möglicherweise _(gravierende)_ Fehler enthalten.
 
-> [!NOTE]
-> Hier musste ich keine Phrasen/Wörter nachschlagen! 🚀
-
 Peleus wünscht sich die Göttin Thetis, die er sehr liebt, zur Ehefrau.\
 Desshalb hat Iuppiter alle Götter und Göttinnen auf den Olymp eingeladen außer Discordia,\
 weil sie normalerweise alle beunruhigt.\
